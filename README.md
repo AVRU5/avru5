@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **josue.dominguez2@g.austincc.edu**
 
-- 📄 Know about my experiences [https://avru5.github.io/](https://avru5.github.io/)
+- 📄 Know about my experiences [https://avru5.github.io/avru5/](https://avru5.github.io/avru5/)
 
 - ⚡ Fun fact **I may be one of the biggest nerd/weeb you'll ever meet.**
 
