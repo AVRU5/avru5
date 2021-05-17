@@ -1,1 +1,1 @@
-# avru5.github.io.
+# avru5.github.io
